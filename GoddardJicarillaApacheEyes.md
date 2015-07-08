@@ -1,4 +1,4 @@
-Goddard, Pliny Earle. Jicarilla Apache Texts. Anthropological Papers of the American Museum of Natural History 8 1911. 
+Goddard, Pliny Earle. Jicarilla Apache Texts. *Anthropological Papers of the American Museum of Natural* History 8 1911. 
 
  COYOTE  LOSES  HIS  EYES
 
