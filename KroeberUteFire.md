@@ -1,6 +1,6 @@
 
 
-A. L. Kroeber.  Ute Tales. *The Journal of American Folklore* Vol. 14, No. 55 (Oct. - Dec., 1901) pp. 252-285.  http://www.jstor.org/stable/533352  252-260
+A. L. Kroeber.  Ute Tales. *The Journal of American Folklore* Vol. 14, No. 55 (Oct. - Dec., 1901) pp. 252-285.  http://www.jstor.org/stable/533352
 
 Coyote lived with the people of whom he was chief. They had no fire. They gathered large flat rocks and piled them together. Toward evening the rocks used to begin to be hot. In the morning Coyote threw water on them; then they steamed, and that made them still hotter. The other people did the same with their heaps. They all used these rocks instead of fire.
 
