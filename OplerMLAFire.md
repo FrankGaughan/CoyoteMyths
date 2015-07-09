@@ -50,7 +50,7 @@ The fireflies didn't know what to do by this time. They asked for rain and heavy
 
 Swallow, when he was tired out, handed the very little that was left to Turtle. Turtle grabbed it and put it in his shell and hid it there, closing his shell. Then came the rain. It was a heavy rain. All the fires were put out except the fire that Turtle had. Lightning and Thunder tried to get it away from Turtle. Lightning struck at him continually, making the marks on his shell that we see today. It rolled him over, but he would not let go. So Turtle saved the fire for us and since then men have used fire. The white streaks and yellow streaks on the turtle shell are the places where the lightning struck at Turtle to make him give up the fire.
 
-*Coyote Steals Fire (Second Verion)**
+**Coyote Steals Fire (Second Verion)**
 
 There he saw people, down below, dancing and singing. He wanted to go down there but he couldn't find the way down. It was a place deep down surrounded by big bluffs on all sides. Coyote stood there and danced and sang and had a merry time too. The others below heard him and looked up.
 
