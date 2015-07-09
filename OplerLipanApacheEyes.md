@@ -1,6 +1,6 @@
 Opler, Morris Edward. *Myths and Legends of the Lipan Apache Indians.* *Memoirs American Folklore Society* 36 New York, 1940. http://babel.hathitrust.org/
 
-Coyote as Eye-Juggler (1)
+*Coyote as Eye-Juggler (version 1)*
 
 Coyote went on. He saw that someone was walking around in an open place. When he got nearer he saw that it was Jack-rabbit. Jack-rabbit was throwing up his eyes, one after the other, juggling them. He was out where there were no trees and had his eyes out of their sockets.
 
@@ -14,7 +14,7 @@ Someone heard him call. It was Jack-rabbit who heard him and came back to help h
 
 Jack-rabbit got two yellow berries and put them in Coyote's eye sockets. "Use these in place of your eyes," he told him.
 
-Coyote as Eye-Juggler (2)
+*Coyote as Eye-Juggler (version 2)*
 
 Coyote was trotting along. He saw that someone was walking around in an open place, throwing something up. He saw the person looking up and then down. He went over and found that it was Rabbit.
 
