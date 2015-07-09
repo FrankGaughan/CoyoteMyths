@@ -31,7 +31,7 @@ He saw the fireflies dancing with the deer and antelopes, with the white-tailed 
 
 Coyote came up.  He asked permission to join the dance. Mountain-lion was chief there. Mountain-lion told him, "If you won't be too rough I'll let you join the dance." 
 
-"I'll try," said Coyote. Coyote danced. He tried to dance close to the fire. But some were suspicious of him. Every time he got too close to the fire, someone got in between him and the fire. After a while the people got tired of watching him and relaxed their vigilance. Then he approached even nearer to the fire and pushed his tail with the cedar bark into the flames. Someone called to him, "Codi, your tail will be burned!"
+"I'll try," said Coyote. Coyote danced. He tried to dance close to the fire. But some were suspicious of him. Every time he got too close to the fire, someone got in between him and the fire. After a while the people got tired of watching him and relaxed their vigilance. Then he approached even nearer to the fire and pushed his tail with the cedar bark into the flames. Someone called to him, "Codi, your tail will be burned!"<sup>[1](#myfootnote1)</sup>
 
 "No, I always do that without any trouble. I am a wonder worker."
 
@@ -48,6 +48,10 @@ The fireflies and others were running after him still. Codi began to run around 
 The fireflies came back to one place. They had a council. They asked, "Who was it who told the coyote how to come in?"
 Then the other children told on the four who had taken the beads from Coyote and given him the information. They said, "Coyote paid those beads for the fire."
 
-The parents of those children got after them, but it was too late then. Coyote had run far. He was tired by the time they gave up the chase. He fell right in the shade, his tail still burning. He rested and started running again. He went on until he had circled the world. He meant to touch every kind of tree with his tail, but he missed one which was standing to the east. So all wood but this one kind will burn. Even if you put this one into the stove it will not burn. [Opler and Goddard speculate that the speaker refers to petrified wood.] Coyote came back to the Indian camps. He said, "Now you can use this fire." 
+The parents of those children got after them, but it was too late then. Coyote had run far. He was tired by the time they gave up the chase. He fell right in the shade, his tail still burning. He rested and started running again. He went on until he had circled the world. He meant to touch every kind of tree with his tail, but he missed one which was standing to the east. So all wood but this one kind will burn. Even if you put this one into the stove it will not burn.<sup>[2](#myfootnote2)</sup>Coyote came back to the Indian camps. He said, "Now you can use this fire." 
 
 The people were all glad now that they had fire.When Coyote ran around the world he went the way the sun goes. He headed for the east and then for the south, and so on. But he didn't run straight. He zig-zagged all around. The others took no part in the run. They stood around and just watched him. 
+***
+<a name="myfootnote1">1</a>: Opler’s footnote: “Coyote address other animals and birds and is addressed by them as Codi in these tales. The word cannot be translated but has the force of ‘friend.’”
+
+<a name="myfootnote2">2</a>: Opler's footnote: "The informant did not know the name of this tree. According to Goddard...this is petrified wood." 
