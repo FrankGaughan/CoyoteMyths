@@ -1,3 +1,4 @@
+Done. 
 
 W. W. Hill and Dorothy W. Hill. “Navaho Coyote Tales and Their Position in the Southern Athabaskan Group.” *The Journal of American Folklore* 58, No. 230 (1945), pp. 317-343. http://www.jstor.org/stable/537185.
 
