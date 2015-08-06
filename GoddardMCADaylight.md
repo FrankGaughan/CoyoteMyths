@@ -1,3 +1,5 @@
+Done. 
+
 Goddard, Pliny Earle. Myths and Tales from the San Carlos Apache. *Anthropological Papers of the American Museum of Natural History* 24 i: 1-86 1918. 
 
 Winning Daylight (Version 1)
@@ -9,3 +11,10 @@ All the people who lived on the earth agreed to do this. They came where those w
 Coyote said, "Come let us have a good time dancing." They began to dance. Coyote said, "Let daylight come quickly." Owl sang, "Let there not be daylight." Coyote danced around singing his song. Owl got sleepy and went to sleep. Bear, too, went to sleep. The people who objected to daylight went to sleep. Then Coyote won the daylight. The people who lived on the earth said, "Thanks, my cousin." Owl said he would live under the rocks in the deep canyons and flew into one. Bear said he would go to a large and distant mountain and live in a hollow Douglas spruce where it is dark. 
 
 Coyote won the daylight and now we have it. The people were happy. 
+
+***
+
+THE WINNING OF DAYLIGHT (Second Version)
+They say long ago there was nothing in the sky. It was night all the time and people traveled by the aid of fire carried in their hands. Coyote called the people all together saying he wished to talk to them. There were two old men who did not want it to be light. They were saying it should be night all the time. These were Xastin Bear and Xastin OWl<sup>[1](#myfootnote1)</sup> who were saying this. Coyote toid his followers to sing, "Let there be daylight," as they danced. They danced and day began break. Bear took up his moccasins and in his hurry put the left one o4 his right foot. He ran away to a big mountain. Owl split his foot into four parts and ran in where two canyons come together. They won daylight and it was light everywhere. It had been night.
+
+<a name="myfootnote1">1</a>: Footnote content goes here
