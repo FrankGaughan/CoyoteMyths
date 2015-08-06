@@ -1,12 +1,14 @@
+Done 
+
 Pliny Earle Goddard.  *Myths and Tales from the White Mountain Apache. Anthropological Papers of the Museum of Natural History* Vol. XXIV, Part 2. The American Museum of Natural History. 1919. 
 
 The Doings of Coyote. 
 
-Long ago. Coyote was told that the people were dying. He tied together a hairbrush, a wooden skin-dresser, and a stone pestle, and threw them in the water. "If these float let them come back to life," he said. They sank and, therefore, the dead did not come back..
+Long ago. Coyote was told that the people were dying. He tied together a hairbrush, a wooden skin-dresser, and a stone pestle, and threw them in the water. "If these float let them come back to life," he said. They sank and, therefore, the dead did not come back.
 
 Snow fell. It rained down in the form of flour. This same Coyote said, "I chewed ice," and it became ice.
 
-Also the horns of deer were tallow. Coyote again said, " I chew bones." Coyote became ill. He had a handsome daughter.  When he became ill, he told his wife to throw him away. He said their daughter was to be given to a man with a panther-skin quiver on his back who would come to play *najone*. This man, he said, would also have a prairie-dog in his hand.
+Also the horns of deer were tallow. Coyote again said, "I chew bones." Coyote became ill. He had a handsome daughter.  When he became ill, he told his wife to throw him away. He said their daughter was to be given to a man with a panther-skin quiver on his back who would come to play *najone*. This man, he said, would also have a prairie-dog in his hand.
 
 When Coyote was dead his wife gave the daughter to the man described by Coyote and he married her. It was Coyote himself, who married his own daughter. He had her hunt his lice. On the back of his head was a large wart. He told her that the lice always stay on this side, indicating a portion of his head remote from the wart. 
 
