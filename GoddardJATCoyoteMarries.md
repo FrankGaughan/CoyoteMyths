@@ -1,3 +1,5 @@
+Done
+
 Goddard, Pliny Earle. Jicarilla Apache Texts. *Anthropological Papers of the American Museum of Natural History* 8 1911. 41. COYOTE MARRIES UNDER FALSE PRETENCES.
 ***
 Note: This short, enigmatic myth is included to illustrate the translation methods that Goddard and other ethnologists of this time used when collecting myths. See the phonetic rendering and more literal, interlinear translation here: https://drive.google.com/file/d/0B3jjm_N_Qi2HTklNeVZ4RUlUMTQ/edit These literal translations often accompanied the standard translation on the facing page or in an appendix. 
