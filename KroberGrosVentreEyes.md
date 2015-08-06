@@ -1,5 +1,5 @@
-KROEBER, A. L. Gros Ventre Myths and Tales. *Anthropological Papers,
-American Museum of Natural History.* New York 1907, Vol. 1, Pt. 3 pp. 55-139.  
+[KROEBER, A. L. Gros Ventre Myths and Tales. *Anthropological Papers,
+American Museum of Natural History.* New York 1907, Vol. 1, Pt. 3] (http://digitallibrary.amnh.org/handle/2246/172?show=full)
 
 11. NIX'ANT LOSES HIS EYES. 
 
