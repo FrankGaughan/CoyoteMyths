@@ -1,4 +1,4 @@
-
+Done
 
 A. L. Kroeber.  Ute Tales. *The Journal of American Folklore* Vol. 14, No. 55 (Oct. - Dec., 1901) pp. 252-285.  http://www.jstor.org/stable/533352
 
