@@ -1,4 +1,4 @@
-
+Done 
 Teit, James. *The Shushwap. Memoirs, American Museum of Natural History* VoL  2 part 7. p. 745-746
 http://digitallibrary.amnh.org/dspace/handle/2246/38  
 
