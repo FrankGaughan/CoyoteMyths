@@ -1,3 +1,5 @@
+Done 
+
 Opler, Morris Edward. *Myths and Legends of the Lipan Apache Indians.* *Memoirs American Folklore Society* 36 New York, 1940. http://babel.hathitrust.org/
 
 *Coyote as Eye-Juggler (version 1)*
