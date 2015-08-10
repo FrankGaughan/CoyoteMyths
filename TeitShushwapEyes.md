@@ -1,3 +1,5 @@
+Done 
+
 Teit, James. *The Shushwap.*  *Memoirs, American Museum of Natural History* VoL  4  New York, 1909. pp. 449-789
 
 **Coyote and Holxolī’p**
