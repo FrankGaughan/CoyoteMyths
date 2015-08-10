@@ -1,3 +1,4 @@
+Done 
 MASON, J. ALDEN. Myths of the Uintah Utes. *Journal of American Folk-Lore* 1910, Vol. 23, pp. 299-363 
  http://www.jstor.org/stable/534545 .
 
